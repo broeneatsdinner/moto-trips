@@ -1,5 +1,6 @@
 # Moto Trips: Japan 2025
-## Japan
+
+## Japan, as told by Arlo Guthrie
 
 I don't want a pickle  
 Just want to ride on my motorcycle ("sickel")  
