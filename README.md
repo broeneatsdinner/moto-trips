@@ -1,10 +1,12 @@
 # moto-trips
 ## Japan
 
-Cruisin' Mos Espa in my De Lorean  
-War's over I'm a peacetime Mandalorian  
-My story has stumped Star Wars historians  
-Deep in debate buffet plate at Bennigans  
+I don't want a pickle  
+Just want to ride on my motorcycle ("sickel")  
+And I don't want a tickle  
+'Cause I'd rather ride on my motorcycle  
+And I don't want to die  
+I just want to ride on my motor-cy ... cul  
 
 # Japan Moto Trip – Planning Checklist
 
