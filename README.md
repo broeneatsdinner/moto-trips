@@ -19,7 +19,7 @@ I just want to ride on my motor-cy ... cul
 
 ---
 
-# Japan Moto Trip – Planning Checklist
+# Planning Checklist
 
 **Dates:** Oct 21–30  
 **Gear:** Bringing full riding kit from CO (helmets, gloves, boots, jackets, pants). Renting bikes in Japan.  
