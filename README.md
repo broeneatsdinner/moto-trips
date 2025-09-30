@@ -1,4 +1,4 @@
-# moto-trips
+# Moto Trips: Japan 2025
 ## Japan
 
 I don't want a pickle  
