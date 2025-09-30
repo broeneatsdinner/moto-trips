@@ -88,3 +88,37 @@ I just want to ride on my motor-cy ... cul
 - Navigation: Google Maps vs. GPX vs. paper.  
 - Cash vs. card acceptance in rural inns/shops.  
 - Language: enough English signage, or memorize key Japanese phrases?  
+
+---
+
+## Logistics Questions
+
+### Questions, conversations, pertinent, English language
+
+What are you guys doing for gear? Helmet, gloves, boots, jacket, pants—i.e. your standard fare. Renting it along with the bikes or packing it out from CO?
+
+If you're traveling with gear (great example: helmet), you're probably checking a bag on a long-haul flight to Japan. When you start this moto trip, what are you doing with your suitcase, and your change of clothes, while you moto around this 5-6 day trip?
+
+Where are you planning to do laundry, even _if_ you are going to do laundry?
+
+What storage do the rental bikes offer (at least, do they have space for a dopp kit with toothbrush/medication and maybe a headlamp or change of socks?)
+
+Accommodation. Is this a book the hotel a week in advance, the night before, or roll into town and find a vacancy sign?
+
+How do riders communicate along the way? If riders all have varied/minimal equipment, and riders have all ridden together for a rough total of 2 days, how to communicate:
+- when to stop,
+- when to pee,
+- hazards,
+- slow down,
+- speed up,
+- I'm uncomfortable,
+- I'm out of gas,
+- we're lost,
+- etc. etc.
+
+**How do riders even know if they're separated?**  
+If it's a three-up (current plan + one friend invite), two can be off cruising and the third can be just leisurely enjoying themself at the back, not realizing how much they're slowing down until the sun is down and they can't find the other two. Being in Japan, with limited language and perhaps a classic dance move as communication, how does one not feel f-ed in that situation?
+
+**Riders should also think, in advance, about breakdowns.**  
+What happens with a flat tire, a gravel road bent-rim, empty fuel, loose handlebars? What's the protocol there?
+
