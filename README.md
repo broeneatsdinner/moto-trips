@@ -8,6 +8,17 @@ And I don't want a tickle
 And I don't want to die  
 I just want to ride on my motor-cy ... cul  
 
+漬物なんかいらない  
+ただオートバイに乗りたいだけ（「シケル」ってね）  
+
+くすぐりもいらない  
+だってオートバイに乗る方がいいから  
+
+死にたくはない  
+ただオートバイに乗りたいんだ… サイクル  
+
+---
+
 # Japan Moto Trip – Planning Checklist
 
 **Dates:** Oct 21–30  
